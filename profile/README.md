@@ -1,4 +1,6 @@
-## Hi there 👋
+## Welcome to zodStudios - A revolution
+
+404; This is in construction
 
 <!--
 
